@@ -24,9 +24,11 @@ $${\color{#8080e4} 𓏲 ๋࣭  ࣪ ˖ \space c+h \space and \space interaction
 
 <details>
 <summary>$${\color{#8080e4} ⟡ ݁₊ . \space about \space me \space ! \space ⋆˚࿔}$$ </summary>
+ 
  🫧₊˚ ┊ may be dry sometimes , depends on mood
+
   
- 🫧₊˚ ┊ favorite colors and purple and green
+ 🫧₊˚ ┊ favorite colors are purple and green
 
  🫧₊˚ ┊ usually offtab
 
