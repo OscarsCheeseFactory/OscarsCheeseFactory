@@ -4,6 +4,9 @@
 
 ‧˚₊•┈┈┈┈୨୧┈┈┈┈•𓆝 𓆟 𓆞 𓆝 𓆟•┈┈┈┈୨୧┈┈┈┈•‧₊˚⊹
 
+![Static Badge](https://img.shields.io/badge/dishwasher-dishwasher?logo=gleam&logoColor=%23a1d2ee&label=delusional&labelColor=grey&color=%234a4ab0)
+
+
 $${\color{#a1d2ee} ٠࣪⭑oscar \space ::  \space raine ᯓ✮ }$$
 
 $${\color{#aba1ee} ༘⋆ \space he \space ,, \space she \space ,, \space they ₊⊹}$$
@@ -27,7 +30,7 @@ $${\color{#8080e4} 𓏲 ๋࣭  ࣪ ˖ \space c+h \space and \space interaction
 
  🫧₊˚ ┊ usually offtab
 
- 🫧₊˚ ┊ you can find me one safe server one , usually by myself , occasionally with friends
+ 🫧₊˚ ┊ you can find me on safe server one , usually by myself , occasionally with friends
 
  🫧₊˚ ┊ not often online
   
@@ -58,6 +61,10 @@ $${\color{#8080e4} 𓏲 ๋࣭  ࣪ ˖ \space c+h \space and \space interaction
 🫧₊˚ ┊ and more !
   
 </details>
+
+
+<img width="300" height="300" alt="zzwocr" src="https://github.com/user-attachments/assets/93a67774-07f3-4289-8b0a-e29114fa31c5" />
+
 
   ‧˚₊•┈┈┈┈୨୧┈┈┈┈• ⋅ ˚ ₊ ‧ ଳ ‧ ₊ ˚ ⋅ •┈┈┈┈୨୧┈┈┈┈•‧₊˚⊹
 
