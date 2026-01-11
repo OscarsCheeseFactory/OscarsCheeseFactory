@@ -20,24 +20,48 @@ $${\color{#8080e4} 𓏲 ๋࣭  ࣪ ˖ \space c+h \space and \space interaction
 
 
 <details>
-<summary>$${\color{#8080e4} 𓏲 ๋࣭  ࣪ ˖ \space about \space me \space ! \space encouraged}$$ </summary>
+<summary>$${\color{#8080e4} ⟡ ݁₊ . \space about \space me \space ! \space ⋆˚࿔}$$ </summary>
+ 🫧₊˚ ┊ may be dry sometimes , depends on mood
+  
+ 🫧₊˚ ┊ favorite colors and purple and green
+
+ 🫧₊˚ ┊ usually offtab
+
+ 🫧₊˚ ┊ you can find me one safe server one , usually by myself , occasionally with friends
+
+ 🫧₊˚ ┊ not often online
   
 </details>
 
 <details>
-<summary>$${\color{#aba1ee} ༘⋆ \space dni \space ! \space ₊⊹}$$</summary>
+<summary>$${\color{#aba1ee} ⋆˚꩜ \space dni \space ! \space ₊⊹}$$</summary>
+
+🫧₊˚ ┊ proshippers + darkshippers
+
+🫧₊˚ ┊ homophobes, etc
+
+🫧₊˚ ┊ 20 years up
+
+🫧₊˚ ┊ basic dni...
   
 </details>
 
 <details>
 <summary>$${\color{#a1d2ee} ٠࣪⭑ \space intrests  \space !  \space ༄｡° }$$</summary>
+
+🫧₊˚ ┊ drawing digitally + traditionally
+
+🫧₊˚ ┊ astronomy
+
+🫧₊˚ ┊ roblox + other games
+
+🫧₊˚ ┊ and more !
   
 </details>
 
   ‧˚₊•┈┈┈┈୨୧┈┈┈┈• ⋅ ˚ ₊ ‧ ଳ ‧ ₊ ˚ ⋅ •┈┈┈┈୨୧┈┈┈┈•‧₊˚⊹
 
 <img width="1265" height="232" alt="2026_01_10_0yr_Kleki" src="https://github.com/user-attachments/assets/77f4f5fe-686e-442e-a75d-461f36a23791" />
-
 
   
 </div>
