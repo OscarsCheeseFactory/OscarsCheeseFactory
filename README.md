@@ -7,9 +7,9 @@
 ![Static Badge](https://img.shields.io/badge/dishwasher-dishwasher?logo=gleam&logoColor=%23a1d2ee&label=delusional&labelColor=grey&color=%234a4ab0)
 
 
-$${\color{#a1d2ee} ٠࣪⭑oscar \space ::  \space raine ᯓ✮ }$$
+$${\color{#a1d2ee} ٠࣪⭑oscar ᯓ✮ }$$
 
-$${\color{#aba1ee} ༘⋆ \space he \space ,, \space she \space ,, \space they ₊⊹}$$
+$${\color{#aba1ee} ༘⋆ \space he \space ,, ,, \space they ₊⊹}$$
 
 $${\color{#8080e4} 𓏲 ๋࣭  ࣪ ˖ \space c+h \space and \space interactions \space encouraged ୨ৎ}$$
 
